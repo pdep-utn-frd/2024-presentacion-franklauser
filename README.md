@@ -12,7 +12,7 @@ Me llamo Franco Klauser, tengo 22 años y vivo en el partido de Tigre.
 - Me encanta la ropa y vestirme "bien"
 - Escucho TODO tipo de música
 - Vi a modo diablo en vivo 2 veces 😈
+- Hice varios transitos de cachorros para distinas fundaciones (adopten, no compren 😉)
   
 ![image](https://github.com/pdep-utn-frd/2024-presentacion-franklauser/assets/110211276/79ec90b7-77f5-43e5-a630-eb1f9a250eb6)
-
 ### Gracias por leer, espero que tengamos una linda cursada 
